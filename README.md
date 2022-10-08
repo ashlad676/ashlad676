@@ -1,7 +1,7 @@
 ### Hi there 👋 MY name Is JOSHUA
 
 
-Here are what I'm working in
+Here are what I'm working on
 
 - 🔭 I’m currently working on ...A Univercity Website
 - 🌱 I’m currently learning ...JavaScript

@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is JOSHUA
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)IM JOSHUA
 ==============================================================================================================================
 
 ![Minimalist Black Animated Loading Screen Video](https://user-images.githubusercontent.com/111607752/194867144-216c566c-7cd4-4087-a8a8-ac0a90389751.gif)

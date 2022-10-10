@@ -1,11 +1,9 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is JOSHUA
 ==============================================================================================================================
 
-
-https://user-images.githubusercontent.com/111607752/194865847-eb8a308e-7906-48cc-b062-f8cff522f23c.mp4
-
 ![Minimalist Black Animated Loading Screen Video](https://user-images.githubusercontent.com/111607752/194867144-216c566c-7cd4-4087-a8a8-ac0a90389751.gif)
 
+![Dark Green and Black Abstarct Dots Web Designer Email Header](https://user-images.githubusercontent.com/111607752/194870246-c8c822b0-843a-4d23-83f2-ae18c7daf092.gif)
 
 
 

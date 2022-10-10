@@ -4,9 +4,10 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 https://user-images.githubusercontent.com/111607752/194865847-eb8a308e-7906-48cc-b062-f8cff522f23c.mp4
 
+![Minimalist Black Animated Loading Screen Video](https://user-images.githubusercontent.com/111607752/194867144-216c566c-7cd4-4087-a8a8-ac0a90389751.gif)
 
 
-https://user-images.githubusercontent.com/111607752/194857819-397bb5b9-5e66-4f66-ba74-480b15fbd133.mp4
+
 
 
 Frontend Web Developer

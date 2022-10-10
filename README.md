@@ -3,6 +3,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 Frontend Web Developer
 ----------------------
+![OIP (7)](https://user-images.githubusercontent.com/111607752/194855748-97343519-2396-4527-b82e-684ba1be57ce.jpg)
 
 Content → Web Development, ||SWE, ||Frontend,|| HTML || CSS || JS,|| React @theashlad4 .js || https://linkedin.com/in/joshua-babalola-3869a5251/||
 
